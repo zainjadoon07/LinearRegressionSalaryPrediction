@@ -131,4 +131,4 @@ MIT License © 2025 — Zain Jadoon
 
 📧 For inquiries, collaboration, or feedback:  
 **Zain Jadoon**  
-[GitHub](https://github.com/zainjadoon07) | [LinkedIn](https://linkedin.com/in/zainjadoon10)
+[GitHub](https://github.com/zainjadoon07) | [LinkedIn](https://linkedin.com/in/zainjadoon07)
